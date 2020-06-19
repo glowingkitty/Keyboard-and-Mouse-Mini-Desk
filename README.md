@@ -1,3 +1,5 @@
+![Keyboard & Mouse Mini Desk](images/headerimage.jpg "Keyboard & Mouse Mini Desk")
+
 Let both your wireless keyboard and mouse rest stable on your lap.
 
 Want to support the development and stay updated?
